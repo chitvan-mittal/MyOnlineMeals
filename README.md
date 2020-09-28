@@ -10,4 +10,4 @@
 
 **MOBILE VIEW**
 
-![3](https://user-images.githubusercontent.com/64066948/94403987-e2145f80-018b-11eb-8e9b-906af1af9ecc.jpeg)
+![3](https://user-images.githubusercontent.com/64066948/94404295-62d35b80-018c-11eb-97ad-712160dc15ca.jpg)
